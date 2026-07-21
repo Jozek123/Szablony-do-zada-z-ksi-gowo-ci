@@ -1,0 +1,1 @@
+# Szablony-do-zada-z-ksi-gowo-ci

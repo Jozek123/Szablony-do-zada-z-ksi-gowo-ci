@@ -1,1 +1,1 @@
-# Szablony-do-zada-z-ksi-gowo-ci
+# Szablony_do_zadan_z_ksiegowosci
